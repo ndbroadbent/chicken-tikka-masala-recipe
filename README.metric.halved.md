@@ -8,29 +8,29 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 ### Chicken marinade 🐔
 
-- 794 grams boneless and skinless chicken thighs or tenders cut into 1 inch cubes or so
-- 1 cup plain yogurt
-- 1 1/2 tablespoons minced garlic
-- 1 teaspoon minced fresh ginger
-- 3.5 teaspoons chicken tikka masala seasoning ([MDH](https://mdhspices.com/product/mdh-chicken-masala/), [Shan](https://www.shanfoods.com/product/recipe-mixes/curry/chicken-masala/), or [Rasoi Magic](https://www.rasoimagic.com/products) brand) 
-- 1/3 teaspoon Kashmiri chili (or 1/4 teaspoon ground red chili powder)
-- 1 teaspoon of salt
-- 3 tablespoons butter for sauteing / cooking the chicken
+- 397 grams boneless and skinless chicken thighs or tenders cut into 1 inch cubes or so
+- 1/2 cup plain yogurt
+- 3/4 tablespoons minced garlic
+- 1/2 teaspoon minced fresh ginger
+- 3/4 heaped tablespoons chicken tikka masala seasoning ([MDH](https://mdhspices.com/product/mdh-chicken-masala/), [Shan](https://www.shanfoods.com/product/recipe-mixes/curry/chicken-masala/), or [Rasoi Magic](https://www.rasoimagic.com/products) brand) 
+- 1/6 teaspoon Kashmiri chili (or 1/8 teaspoon ground red chili powder)
+- 1/2 teaspoon of salt
+- 1 1/2 tablespoons butter for sauteing / cooking the chicken
 
 ### Sauce 🍲
 
-- 5-8 tablespoons butter
-- 3 small onions (or 1 - 1.5 large onion) finely diced
-- 1 1/2 tablespoons garlic finely grated
-- 1 teaspoon ginger finely grated
-- 3.5 teaspoons chicken tikka masala seasoning (MDH or shan brand)
-- 350-415ml  tomato puree / tomato sauce
-- 2 medium fresh tomatoes diced
-- 1/3 - 1/2 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
-- 1 teaspoon salt
-- 1 1/4 cups of heavy or thickened cream
-- 1 teaspoon brown sugar
-- 1/4 cup water if needed
+- 2.5 - 4 tablespoons butter
+- 1.5 small onions (or 1/2 - 3/4 large onion) finely diced
+- 3/4 tablespoons garlic finely grated
+- 1/2 teaspoon ginger finely grated
+- 3/4 heaped tablespoons chicken tikka masala seasoning (MDH or shan brand)
+- 175-208ml  tomato puree / tomato sauce
+- 1 medium fresh tomato diced
+- 1/6 - 1/4 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
+- 1/2 teaspoon salt
+- 0.625 cups of heavy or thickened cream
+- 1/2 teaspoon brown sugar
+- 1/8 cup water if needed
 
 ## Instructions ℹ️
 
